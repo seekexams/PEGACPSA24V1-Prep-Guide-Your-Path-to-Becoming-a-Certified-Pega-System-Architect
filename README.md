@@ -1,0 +1,1 @@
+# PEGACPSA24V1-Prep-Guide-Your-Path-to-Becoming-a-Certified-Pega-System-Architect
